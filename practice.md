@@ -1,5 +1,173 @@
 # Practices
 Some sweet practices.
+## 20220608
+warm up
+300m choice
+200m pull free/back
+100m kick
+
+pre set
+12X75 1x 50 catch-up/25 smooth
+    1x 25 scull/50 build
+
+main set 2x
+8X25 @90%/smooth
+100 easy
+4X50 1:00
+100 easy
+4X50 1:00
+100 easy
+
+## 20220613
+warm up
+300m choice
+200m pull
+100m kick
+
+pre set
+8x100m 25m skull/ 75m streamline
+        im 
+
+main set 3x
+200m breathing control: 3-5-7-3
+100m easy
+200m negative split 
+100m easy
+
+## 20220615--lactate
+warm up 
+200 choice
+100 kick
+100 pull
+
+pre set
+can’t remember
+
+main set 3x
+4x25 1min
+100 easy
+2x50 2min
+200 easy
+
+## 20220617 100RP 
+warm up (700)
+200 pyramid
+2x100 basic/choice (basic: kick, la, ra, swim)
+
+pre set (600)
+8x50 easy, fast
+4x50 kick 1-4 4@80%
+
+main set 2x (1800)
+4x25 100RP :45/1:00 10s rest
+200 easy 4min
+2x50 100RP 1:15/1:30 10s rest
+200 easy 4min
+dive 75 (fast in the last 25)
+3x75 breathe 3-5-7
+
+warm down
+200 choice
+
+3100+200warm down
+
+## 20220622 200RP
+Warm Up 600
+300 loose
+200 kick
+100 pull
+
+Pre Set 9x100
+15 fast/35 loose
+100 pull
+100 kick
+
+Main Set 2X700
+4x50 200RP
+75 loose
+4x50 1 dive + 3 push 1’10
+3x75 free/back/free
+
+## 20220627--tech
+warm up
+400m
+3x100m kick
+3x100m pull
+
+Pre set(can’t remember it exactly)
+200 IM 25drill/25swim
+200 IM 25drill/25build
+200 IM 25easy/25fast
+200 IM kick?
+200 IM 
+ 
+Main set 2X
+8x50
+3x100 fast/easy/easy
+
+Warm down
+100
+
+Total 3500
+
+## 20220629--lactate
+Warm up
+3x200 swim/kick/pull
+
+Pre set 15x50 
+Ra/la 
+@90%/easy 
+Build
+
+Main set 3x
+3x25 ao
+50 easy
+2x50 dive ao
+175 easy
+
+Total 2550
+
+## 20220705--100RP
+Warm up
+300 free choice
+200 kick
+100 pull
+
+Pre set 10x50
+2x 25 ra (la)/25 swim
+2x 25 streamline/25 swim
+50 build
+
+Main set 200 RP 3x
+4x25 1-4 @‘35
+100 easy
+4x50 @1:10
+100 easy
+50 AO
+150 easy 4min
+
+ total:3200+warm down
+
+## 20220707 MUMS
+Warm up
+200 free choice
+200 kick
+200 IM drill
+
+Pre Set
+12x50 IM order kick/drill/swim
+
+Main Set 4x (IM order)
+4x25 10-15m under water
+100 basic (kick/ra/la/swim)
+3x50 MIN MAX/DPS/MIN MAX
+100 loose back/free
+
+Warm down
+200 free choice
+
+total: 3200
+
 ## 20220711-Endurance
 300 3-5-7-bk  
 200 kick choice  
