@@ -50,4 +50,40 @@ Main Set 3x (free/best/ch)
 3x100 free/bk  
 
 Warm Down  
-8x50 25 free/25 DA  
+8x50 25 free/25 DA 
+
+## 20220718 Sprint
+6x100  
+1-swim   
+1-kick  
+1-swim  
+1-pull  
+1-im  
+
+10x50 kick on 1:10  
+1- 25 build 25 ez  
+1- 25 ao 25 ez  
+
+12x25 from middle of the pool  
+1-push & glide  
+1-ez  
+1-ao  
+
+prep set  
+8x50 on 1:00  
+1-15 ao  
+1-5in 10 out  
+1- last 10 ao  
+1- ez  
+
+Main set
+2x  
+4x50  on 1:45  
+1-Dive and glide  
+1-15 ao (break out)  
+1-25 ao (in wall)  
+1-35 ao (out wall)  
+2x75 ez on 2:00  
+
+Dive 50 ao  
+200 ez  
