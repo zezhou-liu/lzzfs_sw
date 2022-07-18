@@ -1,5 +1,5 @@
 # Practices
-Some sweet practices.
+Some sweet practices from MUMS club. Great thumb up to all the coaches and members!
 ## 20220608
 warm up
 300m choice
