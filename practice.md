@@ -1,5 +1,5 @@
 # Practices
-Some sweet practices from MUMS club. Great thumb up to all the coaches and members!
+Some sweet practices from the MUMS club. Big thumb up to all the coaches and members!
 ## 20220608
 warm up
 300m choice
@@ -255,3 +255,19 @@ Main set
 
 Dive 50 ao  
 200 ez  
+
+## 20220720-200RP
+warm up
+5x100 1 swim/1 kick/1 swim/1 pull/1 IM drill
+
+Pre Set
+24x25  build/ra/la/fast/drill/tech
+
+Main Set 3x
+25 @0:40
+50 @1:10
+3x25 2@30/1@40
+50 BES! @1:10
+2x100 fr/bk/choice
+50 BES! @1:10
+150 easy
