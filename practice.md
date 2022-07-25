@@ -271,3 +271,45 @@ Main Set 3x
 2x100 fr/bk/choice
 50 BES! @1:10
 150 easy
+
+## 20220722-technique
+Warm up
+200 choice
+5x100 1-3(3 @ 80%) + 2 x 50kick/50swim
+
+5min floats
+6x100 dive
+2 glide/2 fast kick out/2 breakout 15
+
+5min upright kick
+6x50 kick  easy/fast + fast/easy + 50fast
+
+4x75 IMO drill/swim/drill
+
+Breathing control
+8x25 4 laps a group 4-3-2-1 etc.
+
+Warm down till 0800
+200 choice at least
+
+## 20220725 endurance
+warm up
+300 free
+200 IM drill/swim
+100 kick
+
+Main Set
+5x100 pull 1-5 5@80%-85%
+5x50 kick easy/build
+1 min rest
+5x100 underwater kick 3-4-5-6
+5x50 skull/pull 5 or 7 breathing control
+1 min rest
+5x100 IM alternate sprint: fly, bk, br, fr, choice
+5x50 fast turn
+1 min rest
+
+Warm down
+400 choice
+
+total: 3250
