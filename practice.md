@@ -1,5 +1,8 @@
 # Practices
 Some sweet practices from the MUMS club. Big thumb up to all the coaches and members!
+
+MUMS website is available [here](https://mcgillathletics.ca/sports/2020/7/9/Fall%20Aquatics.aspx).
+
 ## 20220608
 warm up
 300m choice
