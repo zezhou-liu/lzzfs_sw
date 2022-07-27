@@ -316,3 +316,21 @@ Warm down
 400 choice
 
 total: 3250
+
+## 20220727-lactate
+Warm up
+5x100 1 swim/1 kick/1 pull/1 IM drill/1 swim
+
+Pre set
+4x50 1-4 4@90% 
+12x25 drill or tech/build/drill or tech/AO
+75 easy
+
+Main set 4x
+25 dive
+25 push
+100 easy
+50 dive AO
+4x50 fr/bk easy
+
+Total: 2675
