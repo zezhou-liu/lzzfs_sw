@@ -334,3 +334,25 @@ Main set 4x
 4x50 fr/bk easy
 
 Total: 2675
+
+## 20220729--100RP
+Warm up
+5x100 1 fr/ 1 bk/ 1 IM drill/1 bk/1 fr
+
+Pre set
+6x50 sprint outside turn/inside turn 2fr/1 ch
+8x50 pull 1-4 4@90%
+6x50 kick 10s vertical kick+ 15m fast kick out
+
+Main Set 3x
+25 dive AO
+25 easy
+50 BES
+3x100 fr/ch
+Extra minute rest
+
+Warm down
+200 ch
+Social kick
+
+Total: 2900+
