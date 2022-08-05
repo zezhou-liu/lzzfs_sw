@@ -356,3 +356,37 @@ Warm down
 Social kick
 
 Total: 2900+
+
+## 20220803 200RP
+Warm up
+4x100 1 swim/1 kick/1 pull/1 IM drill
+
+Pre set
+8x75 25 scull/50 build  + 50 drill/25 @95% 
+(drill: brest - 2 kicks + 1 pull, others: ra + la)
+
+Main set 3x
+4x25 1-4 @:35
+extra 40s
+broken 200: 
+2x25 / 50 / 2x25 / 50
+(you can do IM in this 200 set)
+100 easy
+50 BES
+150 easy
+extra 1min
+
+## 20220805 MUMS technique
+warm up 
+400 choice
+3x100 1 IM drill/1 kick/1 swim
+
+Main Set 
+8x75 50 drill/rest 10s/25 build
+8x50 kick r+l/fr/r+l/bk
+16x25 25 drill/25 swim 
+(IM order, eg. fl drill, fl swim, fl drill, fl swim) 4x200 pull alternating sprint 
+
+Warm down or practice dive/turns
+
+total: 2900
