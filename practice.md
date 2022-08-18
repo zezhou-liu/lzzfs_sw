@@ -390,3 +390,62 @@ Main Set
 Warm down or practice dive/turns
 
 total: 2900
+
+## 20220810 MUMS Lactate
+Warm up
+4x150 1 free/1 kick/1 free/1 pull
+
+Pre Set
+6x100 build (last 25m @90%)
+            IM
+            25m fast + 75 easy
+8x25 1 scull @:30/1 fast kick out 15m @:40/1 streamline kick @:40/1 AO @:30
+
+Main set 3x
+3x50 1 AO @1:00/1 ez @1:30/1 AO @1:00
+(We skipped the rest time for the first 50m AO and added it up to the 50m ez rest time, so we got more recovery time for the second 50m AO)
+75 ez fr/bk/fr @3:00
+50 dive AO
+3x75 choice @1:20
+Extra 1 min rest
+
+Total: 2900
+
+## 20220812 MUMS 100RP
+Warm up
+300 free
+300 IM/bk
+
+Pre set
+10x50 kick 25 fast/25 ez
+16x25 10m breakout/build/ez/fast
+
+Main set 3x (fr/bk/choice)
+2x50 25 AO/25 ez
+100 ez
+50 dive AO
+50 push AO
+2x100 fr/bk
+Extra 1min rest
+
+Total: 3000
+
+## 20220817 MUMS 200RP
+Warm up
+4x150 swim/kick/swim/pull
+
+Pre set
+8x50 25 build/25 ez
+          25 ez/25 fast
+          50 fast
+          50 smooth
+
+Main set 3x
+2x50 @200RP 1:00
+2x50 ez 1:10
+2x50 @200RP 1:00
+3x75 fr/bk/fr
+50 dive BES
+125 ez @3min
+
+Total: 3100
