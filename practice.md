@@ -449,3 +449,22 @@ Main set 3x
 125 ez @3min
 
 Total: 3100
+
+## 20220819 MUMS technique 
+Warm up
+3x200 free/kick/IM drill
+
+Pre set
+4x100 breathing control 3-5-7-bk
+8x50 kick out 
+First 50: 3/second 50: 4/third 50: 5/fourth 50: choice
+Fr/bk
+
+Main set 3x fr/bk/choice
+100 basic
+4x50 2 drill/2 pull
+6x25 kick out/tech/15 AO
+
+Warm down till 0800 
+
+Total: 2750+
